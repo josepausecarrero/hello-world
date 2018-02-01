@@ -1,13 +1,6 @@
 # hello-world
-Artist Bio
+
+*Artist Bio*
+
 I am Jose Pause Carrero born in the south Bronx April 23, 1975 and raised by my grandmother from Spain. She was a great fan of Pablo Picasso because she was from his hometown. I would be his reincarnation as she stated and geared my life until her last days may she rest in peace. I was sat in front of the television everyday like clockwork to watch the late great Bob Ross in action. I followed up with Disney and as the years progressed I was over whelmed with Marvel and DC comics. I would say for the first decades of my life drawing was preliminary work followed by my painting in the next decade. For about three decades I was part of the graffiti movement aka street art, it is still a rebellious statement when considered an art form. I am considered legendary because of my early roots in NYC and paving the way for many artists who have entered the fellowship in that shape and form. Coming into the digital age I was late 20 years and stubborn in not wanting to cross over in to the digital age. For 20 years into my musical career I struggled with promotion because of not taking advantage of the digital transition. For the past three years I have been in college pursing my Bachelors in graphic design and visual arts. It is also supported by back to back awards as well as honorary memberships to national societies for technical arts. I must admit those skills are the reason why I am able to even be compatible for social media. Other than just putting an image into a post, I am Jose Pause Carrero.
-
-Artist statement
-I create because art is life and life is beautiful. It is a strong statement, but when growing up in an ugly environment it can be your only escape. My art expresses my emotions and feelings based off the world around me. I have four decades of experience in the fellowship conquering and mastering several mediums. Inducted and awarded with back to back awards in traditional and technical societies, supported by academic honor roll status. I not only have talent but educated within its cultures. What drives me in the arts is the influence and inspiration my grandmother taught me through Pablo Picasso and Bob Ross. Since her passing on in death is what pushed me for building an education around my talent like an armor. I now have my own children that I influence and inspire. Which is the motivation fueled by the emotions and ideas conveyed. I look to spread love for peace since it is an age cold concept that is never favored. If war is death then let art be life loaded with paint as ammunition. Pause! as I want to absorb the painting around you and make you feel what I feel, see what I see, and then go spread the message. You will be subject to all mediums and materials explored from traditional to digital concepts of creating art. Leaving no stones unturned in further evolving art into the digital world with children pretending to be me as their influence.
-
-https://josepausecarrero.myportfolio.com/
-https://ello.co/pausecbs
-https://edex.adobe.com/member/53016997/
-https://josepausecarrero.myportfolio.com
-https://www.linkedin.com/in/josepausecarrero/
 
